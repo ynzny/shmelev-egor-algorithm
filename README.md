@@ -1,3 +1,3 @@
-# shmelev-egor-algorithm
+# shmelev-egor-about-me
 
 ⚫🔲ynz-developer🔲⚫
